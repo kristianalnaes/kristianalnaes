@@ -1,6 +1,6 @@
 
 
-![ProfileBanner](https://www.facebook.com/photo?fbid=10154370605300411&set=a.10151042306355411)
+![ProfileBanner](https://scontent.fosl1-1.fna.fbcdn.net/v/t1.0-9/10448190_10154370605300411_4300224845667087521_n.jpg?_nc_cat=111&_nc_sid=e3f864&_nc_ohc=Wh7NFvLW7YEAX_F10xc&_nc_ht=scontent.fosl1-1.fna&oh=58e663f229b283b6f162604733a5428e&oe=5F2DFE6F)
 
 # Kristian Alnaes
 
